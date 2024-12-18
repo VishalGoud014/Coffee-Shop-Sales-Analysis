@@ -10,7 +10,7 @@ Project Tasks:
 4) Develop compelling reports and visualization. 
 5) Create an Interactive dashboard.
 
-Key Takeaways & Suggestions:
+My Key Takeaways & Suggestions:
 
 1) High Revenue on Mondays, Thursdays, and Fridays. Allocating more no.of staff & workers during these days can boost the customer satisfaction.
 
