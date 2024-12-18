@@ -13,7 +13,11 @@ Project Tasks:
 Key Takeaways & Suggestions:
 
 High Revenue on Mondays, Thursdays, and Fridays. Allocating more no.of staff & workers during these days can boost the customer satisfaction.
+
 The demand & revenue from 8 am to 10 am is significantly high. It’s better to maintain better availability of more fixed assets and raw materials to increase the supply.
+
 The demand for coffee & tea category is high.  Increasing the inventory and supply of these products can increase the revenue & footfalls.
+
 Collecting the customer feedbacks can also help in pointing out the areas of improvements.
+
 Overall, lower manhattan has low sales compared to other store locations. It’s better to check on the maintaining the store appearance, staff dressing, designing, quality of the assets, and adding offers can have an positive impact on the customers.
